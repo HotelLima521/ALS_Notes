@@ -1,0 +1,1 @@
+Amn <your airman> Distinguished himself/herself by outstanding achievement as <insert duty title>, Squadron, MAJCOM, Base (E.g. 27 SOCS/AFSOC/Cannon AFB.). The distinctive accomplishments of <Amn your airman> reflects great credit upon him/herself and the United States Air Force
